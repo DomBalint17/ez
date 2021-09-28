@@ -1,0 +1,2 @@
+# ez
+órai munka
